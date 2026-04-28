@@ -1,3 +1,2 @@
 # داشبورد سینماتیکت
-![Image](https://github.com/user-attachments/assets/95cc2e1d-0336-45a4-a13f-9e5e24155932)
-
+![Image](https://github.com/user-attachments/assets/17eef601-a76f-49d5-9862-a773dc54c74b)
