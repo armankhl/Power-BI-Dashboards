@@ -1,5 +1,4 @@
 Namafar Persian YouTube Scraped Data
 
-![Image](https://github.com/user-attachments/assets/6d3e0930-859d-4aa5-9866-0fa4026913fa)
-
+![Image](https://github.com/user-attachments/assets/1813e50a-5be6-428a-ad25-ce8233f3d032)
 
